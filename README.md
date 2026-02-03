@@ -1,11 +1,14 @@
 
+<p align="center"
 
+[rentry](https://rentry.co/jayrozeppeli)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://abbacchio.atabook.org/)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+ <p align="center"
 
 ![](https://file.garden/aVJ-8_Qn93xoMxFi/wuu)
 <p align="center"
-  
-Jayro 21 HeHim
+
+Jayro 21 HeHim (sometimes she is fine too)
 <p align="center"
   
-Don't involve me in proship discourse I don't spend my whole days online to give a fuck about user8237682 shipping todocest. My stance is anti-harassment. 
+Don't involve me in proship discourse, I'm anti-harassment and I live outside of the internet enough to not care whether user874828 ships todocest or not.
 <p align="center"
