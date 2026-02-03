@@ -10,5 +10,5 @@
 Jayro 21 HeHim (sometimes she is fine too)
 <p align="center"
   
-Don't involve me in proship discourse, I'm anti-harassment and I live outside of the internet enough to not care whether user874828 ships todocest or not.
+Don't involve me in proship discourse, I'm anti-harassment and I live outside of the internet enough to not care whether user874828 ships todocest or not. I like some problematic media like TCOAAL and BTD though.
 <p align="center"
