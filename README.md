@@ -1,7 +1,7 @@
 
 <p align="center"
 
-[rentry](https://rentry.co/jayrozeppeli)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://abbacchio.atabook.org/)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+[rentry](https://rentry.co/ventoaureo)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://abbacchio.atabook.org/)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
  <p align="center"
 
 ![](https://file.garden/aVJ-8_Qn93xoMxFi/wuu)
